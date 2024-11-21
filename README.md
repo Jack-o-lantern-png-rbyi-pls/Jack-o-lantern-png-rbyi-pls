@@ -58,7 +58,7 @@
 
 ###
 
-<h1 align="center">Once again it's mostly just for pt,if you wanna know or anything feel free to check out my strawpage !!</h1>
+<h1 align="center">Once again it's mostly just for pt,if you wanna know or anything feel free to check out my strawpage !! Also this is kind of a wip so yeauuhj..</h1>
 
 ###
 
